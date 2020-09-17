@@ -1,0 +1,2 @@
+Karimeen pollichathu (pearl spot) is one of the "star" foods of Kerala, marinated pearl fish is wrapped in banana leaf and grilled resulting in one of the delicious fish delicacy of Kerala. Marinate the fish with Kashmiri chilly powder, pepper, turmeric, lime juice, and salt.
+it is one of the best food in kerala
